@@ -33,6 +33,12 @@ requested_by: Gerald Wagner
 **Dauer:** Halber bis ganzer Tag
 **Preis:** Kostenlos (See) / €15-30 (Wellness optional)
 
+⚠️ **WICHTIG fürs Wochenende (11.-13. April):**
+- See selbst: Immer zugänglich (keine Öffnungszeiten)
+- Restaurants/Cafés: Vorher anrufen, saisonale Öffnungszeiten möglich
+- Schifffahrten: 033433-7480 (Bad Saarow Schifffahrt)
+- Event am Freitag 10.04.: "MOVE & MIX" in der Theaterlounge Bad Saarow
+
 ---
 
 ## 🥈 PLATZ 2: Oberbarnimer Feldsteinroute (Auto-Tour)
@@ -77,6 +83,13 @@ requested_by: Gerald Wagner
 **Preis:** ~€25-35 Tageskarte
 **Entfernung:** ~40 km von Oberbarnim
 
+⚠️ **WICHTIG fürs Wochenende (11.-13. April):**
+- Öffnungszeiten nicht online verfügbar → **VORHER ANRUFEN**
+- Telefon: 03391 442 80 (Resort Mark Brandenburg)
+- Samstag/Sonntag: Meist geöffnet, aber bitte bestätigen lassen
+
+**Alternativ:** Falls geschlossen → Therme Bad Saarow oder Wellnesshotels in der Region
+
 ---
 
 ## 📋 Schnell-Vergleich
@@ -91,7 +104,12 @@ requested_by: Gerald Wagner
 
 ## 💡 Empfohlene Kombination für euer Wochenende
 
-**Samstag:**
+### 🚴 Komoot-Routen (mit GPS):
+1. **Rund um Scharmützelsee:** https://www.komoot.com/de-de/tour/304901530
+2. **Von Berlin zum See:** https://www.komoot.com/de-de/tour/1274913549
+3. **Badestelle Bad Saarow:** https://www.komoot.com/de-de/highlight/180075
+
+**Samstag (11.04.):**
 - Vormittag: Feldsteinroute (Auto-Tour)
 - Mittag: Einkehr in Dorfgasthaus
 - Nachmittag: Scharmützelsee (Baden/Spazieren)
